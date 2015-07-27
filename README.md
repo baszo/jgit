@@ -1,5 +1,2 @@
 # jgitwerrwerwerwe
-sdfsdf
-efwe
-serfwr
-werwer
+tescik
